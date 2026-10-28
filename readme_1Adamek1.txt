@@ -1,0 +1,1 @@
+Czy tutaj bedzie konflikt?
